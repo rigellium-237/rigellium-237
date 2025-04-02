@@ -1,7 +1,7 @@
 - mispronounced naos as 'nay-os' and went with it
 - i like art and video games (mostly geometry dash but i play minecraft from time to time)
 - currently teaching myself how to make encryption algorithms
-- i have an account on Discord (@athanatophobia) that also has other accounts for sites like Reddit or Bluesky or Elon Musk's Torture Chamber®
+- i have an account on Reddit linked on here. responses may take time as i am lazy and read messages erratically.
 - any pronouns work, i don't really care
 
 <!---
